@@ -1,1 +1,6 @@
-i will discontinue this but you can learn at cds7-coding-guide
+😞I am not so good :P i may discontinue this
+
+But maybe i will 🙏-_-O_oo_O:P-.-
+🙄😕😬😶😐😑
+
+🙏Pls subscribe to cooldudeseven7 on youtube🙏
